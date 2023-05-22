@@ -31,7 +31,7 @@ Christina Borao: [Github](https://github.com/crb623) & [LinkedIn](https://www.li
 
 James Galbraith: [Github](https://github.com/ajgalbraith) & [LinkedIn](https://www.linkedin.com/in/james-galbraith/)
 
-Janak Balar: [Github](https://github.com/janakbalar) & [LinkedIn](https://www.linkedin.com/in/janak-balar-4a20731a1/)
+Janak Balar: [Github](https://github.com/janakbalar11) & [LinkedIn](https://www.linkedin.com/in/janak-balar-4a20731a1/)
 
 Wei Luo: [Github](https://github.com/yl7408) & [LinkedIn](https://www.linkedin.com/in/yiwei-luo-b68b131b3/)
 
